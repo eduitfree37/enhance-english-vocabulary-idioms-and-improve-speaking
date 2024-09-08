@@ -1,2 +1,3 @@
 # enhance-english-vocabulary-idioms-and-improve-speaking
-Enhance English Vocabulary, Idioms And Improve Speaking
+Welcome to Logus Vocabulary Course - Your Ultimate English Language Learning Experience! Our carefully crafted course is designed to enhance your English vocabulary, idiomatic expressions, and overall language fluency. With over 30 engaging lessons, each featuring captivating cartoons, you'll have the opportunity to enrich your spoken English with a plethora of cool words and phrases. Take your language skills to the next level with Logus Vocabulary Course.
+[Detail](https://eduitfree.com/courses/enhance-english-vocabulary-idioms-and-improve-speaking)
